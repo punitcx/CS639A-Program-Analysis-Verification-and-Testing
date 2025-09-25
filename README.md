@@ -1,1 +1,1 @@
-Really enjoyed the course - even though it was a bit hectic!
+Really enjoyed the course and the assignments - even though it was a bit hectic!
